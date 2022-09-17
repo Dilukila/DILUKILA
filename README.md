@@ -4,7 +4,7 @@ Ola! Sou António Kalenda Dilukila
 
 ✔ 👂🏿Concentrado em aprender conteúdos de programação e Tecnologia no geral.
 
-✔ 🤍Sou Apaixonado por gestão e Tecnologias.
+✔ 🤍Sou Apaixonado por gestão, auditória e Tecnologias.
 
 ✔ 🌎Idiomas: Português nativo, Inglês e Espanhol Intermediário.
 
